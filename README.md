@@ -1,0 +1,1 @@
+30% of 2500 total crimes were unresolved, the most dangerous time when crimes usually occur is 12pm and crimes were at it lowest around 5:45am. Out of 2500  crime cases, 1751 were completely resolved.
